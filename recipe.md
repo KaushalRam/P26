@@ -1,0 +1,2 @@
+Begin with some Sandwhich.Next, will be the dough preparation process where we shall engaged our hands for a mini work out, preparing the dough. Roll it as a thin sheet and cook it in a medium flame.  Next is to prepare the appetizing salad, mixing the sliced carrots, capsicums and onions with seasoning that makes a perfect combination of extravaganza.
+ Then, assemble the stuffs and the sandwhich is ready to be served hot with garlic mayonnaise!
